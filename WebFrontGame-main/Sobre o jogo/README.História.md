@@ -1,0 +1,25 @@
+<h1 align="center">:file_cabinet: HISTÓRIA</h1>
+
+Waterboy acorda em uma sala iluminada levemente por finos raios de luz que passam entre as vinhas trepadeiras que cobrem os buracos na grande parede de concreto. Mais uma vez, ele sai para explorar e tentar entender essa grande estrutura na qual se encontra desde que se lembra. Caminhando por várias salas e usando as habilidades únicas que tem, ele passas pelos obstáculos em seu caminho para entender o que é este mundo em que se encontra. Mas, nesse dia, Waterboy não esperava que fosse cair numa grande falha que surgiu perante seus pés, quando ele estava a poucos passos da sala a qual ele nunca ousou entrar.
+
+Firegirl acordava em uma sala escura, onde enxergava somente devido a sua luminosidade natural. Ela não tinha a menor ideia de porque estava lá, o que ela era, e o que era aquele lugar. Sentiu então algo cair em seus ombros que doeu e ardeu muito, algo que ela reconheceu como um pingo de água. Então surgiram mais pingos, e ela foi obrigada a se levantar, mas não pararia por ai. Os pingos viraram gotas, e as gotas começaram a virar chuva. Ela corria em desespero tentando achar um abrigo onde a chuva repentina não a mataria, enquanto a dor estridente tentava apagar sua consciência. até que ela viu um abrigo onde a chuva não alcançava. Lá ela se escondeu, ao topo de uma pequena rocha que a defendeu então das correntezas de água que corriam pelos corredores. Ela estava a salvo. Resolveu então encolher-se na pedra, até que chegou um momento que suas fracas chamas adormeceram.
+
+
+
+Waterboy caminhava pelos corredores escuros e úmidos, que não apresentavam nada do que ele conhecia, usando somente da umidade para se guiar pelo escuro, como se a água fosse uma extensão de seus nervos. Até que, chegou um momento em que ele achou uma pequena sala onde não sentia água, mas via uma luz fraca laranja. Lá, Waterboy vê Firegirl pela primeira vez. Completamente diferente de tudo que ele já viu, aquela coisa se mexia o tempo todo, e ao mesmo tempo parecia estar completamente parada. Waterboy se aproximava para tentar olhar mais de perto, e isso começou a machuca-lo.  Ele continuou se aproximando, enquanto sentia que borbulhava, até que conseguiu encostar nesta Coisa a sua frente. Ao encostar, sentiu como se tivessem-lhe arrancado o dedo, e a coisa levantou com um movimento rápido. Então, os dois se encaravam. nenhum movimento foi feito por alguns segundos, até que Waterboy tentou se aproximar e Firegirl deu então um passo para trás. Waterboy então, vendo que não sabia o que fazer, decidiu seguir caminho e deixar a coisa para se virar por si mesma.
+
+
+
+Porém, enquanto caminhava procurando um lugar para sair, percebia que tinha uma luz laranja sempre iluminando, e olhando para trás percebeu que a coisa (Firegirl) o seguia, a distância. Ele não fez nada, apenas continuou seguindo o caminho e tentando achar a uma saída ou um caminho para voltar a superfície.
+
+
+
+E agora, esses dois serão a chave para redescobrir uma história que nunca lhes foi contado. pois após atravessar várias zonas cheias de obstáculos e peças do quebra cabeça, tudo será então explicado na GRANDE SALA.
+
+
+
+atenção, a partir daqui é realmente a história do jogo e porque as coisas que estão acontecendo acontecem:
+
+Os Antigos eram um grupo de seres com uma sociedade complexa que viviam nesse mundo a muito tempo atrás, 200 anos antes da história de Waterboy e Firegirl. Eles tinham um grande problema para resolver porém, que era o fato de que o ambiente de seu planeta tinha se tornado hostil e inabitável para eles. Eles então estavam procurando uma maneira de se tornar novamente aceitados pelo seu planeta, e para isso executaram vários experimentos para transformarem seus corpos em Elementais, atingindo um nível de harmonia com o ambiente jamais visto. Seus primeiros experimentos foram com Waterboy, e algum tempo depois com Firegirl. Porém eles ficaram desacordados, e Os Antigos os julgaram mortos e falhos. Então, ao ver isso, julgaram que o problema era uma falta de potência no processo. Foi criado então o Dispositivo de Harmonização Populacional. Com esse dispositivo de extrema potência. o sucesso era garantido, e eles conseguiram exatamente o que queriam. Toda a população dos antigos ao ser atingida pelo DHP, se tornaram Elementais. Porém, com a grande potência do DHP, a grande maioria acabou sofrendo o processo de Dessociação, e viraram os elementos aos quais foram atribuídos, ou seja, viraram o ambiente do planeta que havia virado contra eles próprios. Enquanto alguns poucos não sofreram Dessociação completa, e viraram Elementóides, com a energia dos elementos do seu planeta sendo conduzida por uma casca do que já foi Um Antigo. São extremamente perigosos, e causam desbalanço total do ambiente em que se encontram.
+
+Depois dos eventos do dia em que o DHP foi disparado, o último resquício de que algum dia teve uma civilização neste planeta era ironicamente, os laboratórios onde se encontravam Waterboy e Firegirl, e a grande cidade que se encontrava desmoronada e tomada por Elementóides logo acima.

@@ -1,0 +1,3 @@
+<h1 align="center">:file_cabinet: FRAMEWORK/ENGINE</h1>
+
+Nós usaremos a Unity, e faremos o jogo de forma Local. Usaremos o Github para trabalhar no projeto, e depois usaremos o itch.io para disponibilizar o jogo para download. A linguagem principal será C#, e como faremos de forma local, não teremos linguagens ou frameworks web. Porém, ainda usaremos a IDE da Unity para testar o jogo, e a própria unity para compilar o jogo. Por enquanto não há necessidade de nenhum outro framework ou linguagem, mas durante o projeto caso se mostre necessário, será adicionado aqui.
